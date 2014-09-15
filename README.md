@@ -1,4 +1,4 @@
-# BUPT研究生导师口碑榜————学生的视角（Beijing University Of Programming and Typing）
+# BUPT研究生导师口碑榜——学生的视角
 
 ### 信通
 * 信通院郭军（组里老师人都很nice，但是也有雷区）http://bbs.byr.cn/#!article/AimGraduate/914130  
