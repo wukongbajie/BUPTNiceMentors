@@ -1,14 +1,12 @@
 # BUPT研究生导师口碑榜——学生的视角
 
 ### 信通
-* 信通院郭军（组里老师人都很nice，但是也有雷区）http://bbs.byr.cn/#!article/AimGraduate/914130  
+* 信通院郭军老师人都很nice，但是也有雷区http://bbs.byr.cn/#!article/AimGraduate/914130  
 * 信通院杨鸿文（业界良心啊；杨鸿文老师。。。人好。。。只是担心去那儿就成天仿真什么的，感觉很无聊啊；杨老师是个真正做学问的导师，你愿意跟他做学问就可以来实验室，不愿意就可以出去实习，实验室工资照发，他不强迫学生来实验室，自己选择自己的路。虽然我不是杨老师的学生，但有些口碑的确是口口相传）http://bbs.byr.cn/#!article/AimGraduate/909596?p=17 
 * 李静林老师人特别好，对学生也很用心～ 强烈推荐学弟学妹们报考！～ http://bbs.byr.cn/#!article/AimGraduate/938707?p=9 
 * 信通院竟然没有大雷振明组。。。 真心是闷声发大财啊，佩服一个。http://bbs.byr.cn/#!article/AimGraduate/938707?p=10
 * 擦，信通院田辉老师怎么能不在呢。。。欢迎打听 http://bbs.byr.cn/#!article/AimGraduate/938707?p=13
-* 信通孙松林
-  ** 信通孙松林老师，也是有口皆碑了吧 http://bbs.byr.cn/#!article/AimGraduate/938707?p=27
-  ** 孙松林老师必须顶。感觉他做的很多事定，都是考虑在读学生的利益。发信人: idiotwind http://bbs.byr.cn/#!article/AimGraduate/938707?p=34
+* 信通孙松林: 信通孙松林老师，也是有口皆碑了吧 http://bbs.byr.cn/#!article/AimGraduate/938707?p=27 孙松林老师必须顶。感觉他做的很多事定，都是考虑在读学生的利益。发信人: idiotwind http://bbs.byr.cn/#!article/AimGraduate/938707?p=34
 * 信通院吕旌阳老师组也很好，小实验室氛围不错，每月集体过生日吃饭。项目偏硬件，有兴趣的同学们也可以看看~ 发信人: DJW19911117 http://bbs.byr.cn/#!article/AimGraduate/938707?p=34
 
 ### 计算机
