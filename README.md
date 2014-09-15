@@ -8,6 +8,7 @@
 * 擦，信通院田辉老师怎么能不在呢。。。欢迎打听 http://bbs.byr.cn/#!article/AimGraduate/938707?p=13
 * 信通孙松林: 信通孙松林老师，也是有口皆碑了吧 http://bbs.byr.cn/#!article/AimGraduate/938707?p=27 孙松林老师必须顶。感觉他做的很多事定，都是考虑在读学生的利益。发信人: idiotwind http://bbs.byr.cn/#!article/AimGraduate/938707?p=34
 * 信通院吕旌阳老师组也很好，小实验室氛围不错，每月集体过生日吃饭。项目偏硬件，有兴趣的同学们也可以看看~ 发信人: DJW19911117 http://bbs.byr.cn/#!article/AimGraduate/938707?p=34
+* 信通院 郝建军老师  强力推荐，你值得拥有！http://bbs.byr.cn/#!article/AimGraduate/938707?p=39
 
 ### 计算机
 * 计算机院戴志涛（戴局长项目很多的，人很nice的，学不学东西要看你自己的）http://bbs.byr.cn/#!article/AimGraduate/938355  
@@ -32,7 +33,7 @@
 
 ### 自动化
 * 自动化宋晴（如果去自动化学院 强推 宋晴老师 人巨好 实验室宽松 可以出去实习 老师还帮忙改小论文 总之各种赞！！！http://bbs.byr.cn/#!article/AimGraduate/909596?p=19 老师人又漂亮跳舞又美翻！ http://bbs.byr.cn/#!article/AimGraduate/909596?p=20 http://bbs.byr.cn/#!article/AimGraduate/938707?p=3）  
-
+* 自动化学院雷全胜老师，追随老师三年经验证明，跟着雷老师，绝对靠谱，能发SCI，支持找实习，绝对够理解人，非常体贴，很为学生着想，马上就要毕业了，希望雷老师能够招到更有优秀的学弟学妹。http://bbs.byr.cn/#!article/AimGraduate/938707?p=38
 ### 光研
 * 光研院张杰（补充一个光研院的张杰老师，毕业几年了，一直觉得自己当初的选择很正确。不要被光研的名字吓到，专业也是通信与信息系统，当初我们组的同学大多去了互联网&银行、外企研发。）  
 * 光研院黄永清老师很好
