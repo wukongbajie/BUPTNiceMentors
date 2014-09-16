@@ -89,6 +89,8 @@
  - 电子院赵同刚老师还是不错的~~~~ http://bbs.byr.cn/#!article/AimGraduate/938707?p=23
  - 强烈要求电子院加上赵同刚老师！！！ http://bbs.byr.cn/#!article/AimGraduate/938707?p=27
  - 电子其他实验室顶赵同刚老师  http://bbs.byr.cn/#!article/AimGraduate/938707?p=33
+ - Cycer: 学弟学妹们，还是多打听打听吧，学长学姐们水论坛的比较多，大多数说的是反话，比如推荐赵t刚老师，呵呵 http://bbs.byr.cn/#!article/AimGraduate/938707?p=31
+
 - 刘绍华
  - 电子院 刘绍华 必须赞一个啊 发信人: sxhiger http://bbs.byr.cn/#!article/AimGraduate/938707?p=36
 
