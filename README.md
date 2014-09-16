@@ -1,6 +1,6 @@
 # BUPT研究生导师口碑榜——学生的视角
 - 口碑榜来源帖子： http://bbs.byr.cn/#!article/AimGraduate/938707
-- 下面的回复是这个开个github的原因，感谢这位同学的设想
+- 下面的回复是这个开个github开源项目的原因，感谢这位同学的设想
 ```
 发信人: swjl19900123 (), 信区: AimGraduate 
 标  题: Re: 北邮工科研究生导师白名单 
