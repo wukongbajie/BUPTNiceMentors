@@ -32,8 +32,10 @@
  - 信通院 郝建军老师  强力推荐，你值得拥有！http://bbs.byr.cn/#!article/AimGraduate/938707?p=39
  
 - 信通院郭军
- - 组里老师人都很nice，但是也有雷区http://bbs.byr.cn/#!article/AimGraduate/914130  
+ - 组里老师人都很nice，但是也有雷区 http://bbs.byr.cn/#!article/AimGraduate/914130  
 
+- 徐蔚然
+ - max19890809：郭boss手下的徐蔚然老师，十分推荐 http://bbs.byr.cn/#!article/AimGraduate/938707?p=3
 
 ### 计算机
 - 计算机院王小捷
