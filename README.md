@@ -32,7 +32,7 @@
  - 信通院 郝建军老师  强力推荐，你值得拥有！http://bbs.byr.cn/#!article/AimGraduate/938707?p=39
  
 - 信通院郭军
- -组里老师人都很nice，但是也有雷区http://bbs.byr.cn/#!article/AimGraduate/914130  
+ - 组里老师人都很nice，但是也有雷区http://bbs.byr.cn/#!article/AimGraduate/914130  
 
 
 ### 计算机
@@ -59,7 +59,7 @@
  - http://bbs.byr.cn/#!article/AimGraduate/909596?p=52
 
 - 廖建新
- -顶廖老板的组
+ - 顶廖老板的组
 
 - 信网黄小红
  - 网研信网黄小红萌萌哒 http://bbs.byr.cn/#!article/AimGraduate/938707?p=10
@@ -85,7 +85,6 @@
 - 光研院张杰
  - 补充一个光研院的张杰老师，毕业几年了，一直觉得自己当初的选择很正确。不要被光研的名字吓到，专业也是通信与信息系统，当初我们组的同学大多去了互联网&银行、外企研发。 
 
-- 光研院黄永清老师很好
 
 ### 未区分的院
 -  别志松
