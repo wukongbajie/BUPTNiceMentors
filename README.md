@@ -73,6 +73,8 @@
  - gaojielove：李静林老师人特别好，对学生也很用心～ 强烈推荐学弟学妹们报考！～ http://bbs.byr.cn/#!article/AimGraduate/938707?p=9
  - tang1doudou：交换邹老师组也很好，下面林老师和赵老师对学生都很好。林老师脾气性格极好，比较能理解学生，跟着林老师研究生三年极其幸福。赵老师，学术、技术都很厉害，发论文什么的完全不担心~~ http://bbs.byr.cn/#!article/AimGraduate/938707?p=48
 
+- 人格担保，**林荣恒**老师绝对是北邮里面数一数二的真心对学生好，为学生着想的好老师。不同老师差别很大，千万别认错了。
+  
 - 网研网服中心程勃
  - http://bbs.byr.cn/#!article/AimGraduate/909596?p=52
 
@@ -125,5 +127,3 @@
 - 田辉
  - 田辉老师，嘿嘿，人品好是必须的，感觉对我们学生都很好，实验室氛围也很nice，师兄师姐们给我感觉都很学术。。。 http://bbs.byr.cn/#!article/AimGraduate/938707?p=27
 
-- 林荣恒
- - bswgd: 居然没有林荣恒老师？ 以人格担保，林荣恒老师绝对是北邮对学生最好的老师之一。 http://bbs.byr.cn/#!article/AimGraduate/938707?p=50
