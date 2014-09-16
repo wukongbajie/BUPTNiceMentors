@@ -1,8 +1,8 @@
 关于读研
 
-- fenixlee520
- - http://bbs.byr.cn/#!article/AimGraduate/909596
- - http://bbs.byr.cn/#!article/AimGraduate/909596?au=fenixlee520
+## fenixlee520
+- http://bbs.byr.cn/#!article/AimGraduate/909596
+- http://bbs.byr.cn/#!article/AimGraduate/909596?au=fenixlee520
 ```
 发信人: fenixlee520 (流浪剑客||The art of 吐槽), 信区: AimGraduate 
 标  题: Re: 读研一定要选好导师！ 
@@ -130,8 +130,8 @@ ps：其实我心里深处是没有“好”这个概念的，我只会说，这
 : ................... 
 ```
 
-- ekittying
- - http://bbs.byr.cn/#!article/AimGraduate/938707?p=13
+## ekittying
+- http://bbs.byr.cn/#!article/AimGraduate/938707?p=13
 ```
 发信人: ekittying (从我邮滚蛋的忧伤|胖死我吧！！！), 信区: AimGraduate 
 标  题: Re: 北邮工科研究生导师白名单 
