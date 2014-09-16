@@ -71,6 +71,7 @@
  - 交换的学生就业好，和学生本身能力较好、学生抱团、学长搭线以及实验室平台都有关。交换老师能让学生实习，其实说明了老师内心的强大和对学生的信任，^_^；当然，也有导师扣着晚放出去实习的。http://bbs.byr.cn/#!article/AimGraduate/909596?p=66  
  - 网研森哥组，你值得拥有  毕业生吐血推荐 http://bbs.byr.cn/#!article/AimGraduate/938707?p=26
  - gaojielove：李静林老师人特别好，对学生也很用心～ 强烈推荐学弟学妹们报考！～ http://bbs.byr.cn/#!article/AimGraduate/938707?p=9
+ - tang1doudou：交换邹老师组也很好，下面林老师和赵老师对学生都很好。林老师脾气性格极好，比较能理解学生，跟着林老师研究生三年极其幸福。赵老师，学术、技术都很厉害，发论文什么的完全不担心~~ http://bbs.byr.cn/#!article/AimGraduate/938707?p=48
 
 - 网研网服中心程勃
  - http://bbs.byr.cn/#!article/AimGraduate/909596?p=52
