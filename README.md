@@ -37,6 +37,9 @@
 - 徐蔚然
  - max19890809：郭boss手下的徐蔚然老师，十分推荐 http://bbs.byr.cn/#!article/AimGraduate/938707?p=3
 
+- 张欣
+ - liyuancao：杨大成组张欣老师，也是一顶一的好老师！ http://bbs.byr.cn/#!article/AimGraduate/938707?p=46
+
 ### 计算机
 - 计算机院王小捷
  - 人比较nice,王小捷老师不错，嗯 
@@ -79,6 +82,7 @@
 -  自动化宋晴
  - 如果去自动化学院 强推 宋晴老师 人巨好 实验室宽松 可以出去实习 老师还帮忙改小论文 总之各种赞！！！http://bbs.byr.cn/#!article/AimGraduate/909596?p=19 
  - 老师人又漂亮跳舞又美翻！ http://bbs.byr.cn/#!article/AimGraduate/909596?p=20 http://bbs.byr.cn/#!article/AimGraduate/938707?p=3
+ - a61730607：作为研一的新生  ，我表示宋晴老师实验室不要太好。虽然招的人少，每年3个左右，不过大家无论科研还是生活都很团结，还有历届的学长学姐经常一起聚会。 我始终认为读研很重要的一点是选对老师，宋老师的人真的很好 ，真正为学生着想。 http://bbs.byr.cn/#!article/AimGraduate/938707?p=6 
 
 - 雷全胜
  - 自动化学院雷全胜老师，追随老师三年经验证明，跟着雷老师，绝对靠谱，能发SCI，支持找实习，绝对够理解人，非常体贴，很为学生着想，马上就要毕业了，希望雷老师能够招到更有优秀的学弟学妹。http://bbs.byr.cn/#!article/AimGraduate/938707?p=38
