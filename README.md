@@ -124,4 +124,5 @@
 - 田辉
  - 田辉老师，嘿嘿，人品好是必须的，感觉对我们学生都很好，实验室氛围也很nice，师兄师姐们给我感觉都很学术。。。 http://bbs.byr.cn/#!article/AimGraduate/938707?p=27
 
-
+- 林荣恒
+ - bswgd: 居然没有林荣恒老师？ 以人格担保，林荣恒老师绝对是北邮对学生最好的老师之一。 http://bbs.byr.cn/#!article/AimGraduate/938707?p=50
