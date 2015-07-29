@@ -9,7 +9,6 @@
 不过很担心能不能一直坚持到成册的那一天啊…… 
 ```
 ## 提名新的学生认可的导师
-原始内容来源于北邮人论坛考研专版的学生推荐帖：https://github.com/strint/BUPTNiceMentors/blob/master/TieZi.markdown
 **提名新的老师**或质疑现有名单，在https://github.com/wukongbajie/BUPTNiceMentors/issues/5 下面直接回复（有github账号的），或者发邮件到xxy2050@gmail.com。
 
 提名新老师的**推荐理由**建议在下面的条目中选取几个。
@@ -153,3 +152,6 @@
 - 田辉
  - 田辉老师，嘿嘿，人品好是必须的，感觉对我们学生都很好，实验室氛围也很nice，师兄师姐们给我感觉都很学术。。。 http://bbs.byr.cn/#!article/AimGraduate/938707?p=27
 
+## 参考资源
+* [1]原始内容来源于北邮人论坛考研专版的学生推荐帖：https://github.com/strint/BUPTNiceMentors/blob/master/TieZi.markdown
+* [2]关于读研：https://github.com/wukongbajie/BUPTNiceMentors/blob/master/关于读研.markdown
