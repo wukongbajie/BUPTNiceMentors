@@ -10,7 +10,7 @@
 不过很担心能不能一直坚持到成册的那一天啊…… 
 ```
 -- 
-- 整理的内容完全来源于北邮人论坛考研专版的学生推荐帖：https://github.com/strint/BUPTNiceMentors/blob/master/TieZi.markdown
+- 整理的内容来源于北邮人论坛考研专版的学生推荐帖：https://github.com/strint/BUPTNiceMentors/blob/master/TieZi.markdown
 
 ## 了解导师（实验室）的参考条件
 #### 软环境 
