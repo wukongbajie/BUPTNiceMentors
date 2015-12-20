@@ -9,7 +9,7 @@
 不过很担心能不能一直坚持到成册的那一天啊…… 
 ```
 ## 提名新的学生认可的导师
-**提名新的老师**或质疑现有名单，在https://github.com/wukongbajie/BUPTNiceMentors/issues/5 下面直接回复（有github账号的），或者发邮件到xxy2050@gmail.com。
+**提名新的老师**或质疑现有名单，在https://github.com/wukongbajie/BUPTNiceMentors/issues/5 下面直接回复（有github账号的）。
 
 提名新老师的**推荐理由**建议在下面的条目中选取几个。
 ### 培养上
