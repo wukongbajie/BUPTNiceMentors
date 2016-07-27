@@ -9,8 +9,8 @@
 不过很担心能不能一直坚持到成册的那一天啊…… 
 ```
 ## 更多更新的名单见下面的链接
-https://github.com/wukongbajie/BUPTNiceMentors/issues/5
-可以在上面的链**提名新的老师**或质疑现有名单，需要有github账号。
+* https://github.com/wukongbajie/BUPTNiceMentors/issues/5
+* 可以在上面的链接【提名新的老师】或【质疑现有名单】，需要有github账号。
 
 ## BUPT研究生导师口碑榜
 ### 计算机
